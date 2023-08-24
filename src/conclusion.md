@@ -1,5 +1,4 @@
 
-
 In this book, we've explored the importance of workplace creativity and innovation for driving business growth and staying competitive in today's fast-paced business world. We've provided examples of successful workplace creativity and innovation, the impact of workplace creativity and innovation on business success, and strategies for enhancing workplace creativity and innovation.
 
 Summary of Key Points

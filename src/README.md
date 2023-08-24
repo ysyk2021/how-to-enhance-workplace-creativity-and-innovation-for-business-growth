@@ -1,5 +1,4 @@
 
-
 In today's rapidly changing business world, creativity and innovation have become essential for success and growth. Organizations that foster a culture of creativity and innovation are better equipped to adapt to change, stay ahead of the competition, and achieve their goals.
 
 That's where "How to Enhance Workplace Creativity and Innovation for Business Growth" comes in. This book provides a comprehensive guide to enhancing workplace creativity and innovation to drive business growth. From design thinking to problem-solving skills, this book covers everything you need to know to create a culture of creativity and innovation in your organization.
