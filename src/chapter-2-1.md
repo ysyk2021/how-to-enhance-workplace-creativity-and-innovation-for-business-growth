@@ -1,5 +1,3 @@
-What is Workplace Creativity and Innovation?
-=====================================================================================================
 
 Workplace creativity and innovation are crucial for organizations to stay competitive, adapt to changing market conditions, and drive business growth. In this chapter, we'll define workplace creativity and innovation and explore their importance in the modern workplace.
 

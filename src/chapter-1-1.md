@@ -1,5 +1,3 @@
-Purpose of the Book
-=================================
 
 The purpose of this book is to provide insights and strategies for enhancing workplace creativity and innovation to drive business growth. In today's fast-paced business world, organizations must prioritize creativity and innovation to stay competitive and achieve success.
 

@@ -1,5 +1,3 @@
-Innovations in Fostering Workplace Creativity and Innovation
-==========================================================================================
 
 As technology and the business landscape continue to evolve, so too do the strategies for fostering workplace creativity and innovation. In this chapter, we'll explore some of the future directions and innovations in fostering workplace creativity and innovation.
 

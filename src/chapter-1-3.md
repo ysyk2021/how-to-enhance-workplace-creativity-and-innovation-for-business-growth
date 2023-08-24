@@ -1,5 +1,3 @@
-Importance of Enhancing Workplace Creativity and Innovation for Business Growth
-=============================================================================================
 
 In today's fast-paced business world, organizations must prioritize workplace creativity and innovation to stay competitive and achieve business growth. In this book, we'll explore the importance of enhancing workplace creativity and innovation and provide strategies for achieving them in the workplace.
 

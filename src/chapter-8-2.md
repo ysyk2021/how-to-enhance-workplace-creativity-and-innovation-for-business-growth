@@ -1,5 +1,3 @@
-Modeling Creative and Innovative Behaviors
-=========================================================================
 
 Leadership support is essential for fostering workplace creativity and innovation. In this chapter, we'll explore the importance of modeling creative and innovative behaviors as a strategy for leadership support.
 

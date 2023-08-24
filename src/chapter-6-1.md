@@ -1,5 +1,3 @@
-Promoting Physical and Mental Health
-===============================================================================
 
 Prioritizing employee wellness is essential for fostering workplace creativity and innovation. In this chapter, we'll explore strategies for promoting physical and mental health among employees.
 

@@ -1,5 +1,3 @@
-Managing Diversity Effectively
-=================================================================
 
 Building diverse teams is essential for fostering workplace creativity and innovation. In this chapter, we'll explore strategies for managing diversity effectively to create a more innovative and productive workforce.
 

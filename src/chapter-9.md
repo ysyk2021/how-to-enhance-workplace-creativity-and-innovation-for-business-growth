@@ -1,5 +1,3 @@
-Chapter 8: Future Directions
-============================
 
 As the business world continues to evolve, organizations must adapt and innovate to stay competitive. This chapter will explore future directions for fostering workplace creativity and innovation to drive business growth.
 

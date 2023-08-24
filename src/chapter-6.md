@@ -1,5 +1,3 @@
-Chapter 5: Prioritizing Employee Wellness
-=========================================
 
 Prioritizing employee wellness is essential for fostering workplace creativity and innovation. In this chapter, we'll explore strategies for promoting physical and mental health, managing stress, and balancing work and personal life to support employee wellness.
 

@@ -1,5 +1,3 @@
-Building Teams with Diverse Backgrounds and Perspectives
-===========================================================================================
 
 Building diverse teams is essential for fostering workplace creativity and innovation. In this chapter, we'll explore strategies for building teams with diverse backgrounds and perspectives.
 

@@ -1,5 +1,3 @@
-Implementing Workplace Creativity and Innovation Strategies for Business Growth
-==========================================================================================================
 
 In the previous chapters, we've discussed various workplace creativity and innovation strategies. In this chapter, we'll focus on how to implement these strategies effectively in order to drive business growth.
 

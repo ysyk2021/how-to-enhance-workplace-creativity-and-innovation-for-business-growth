@@ -1,5 +1,3 @@
-Balancing Work and Personal Life
-===========================================================================
 
 Prioritizing employee wellness is essential to enhancing workplace creativity and innovation. In this chapter, we'll explore the importance of balancing work and personal life and strategies for promoting employee wellness.
 

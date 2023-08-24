@@ -1,5 +1,3 @@
-Encouraging Idea Generation and Experimentation
-===========================================================================================================
 
 Encouraging idea generation and experimentation is an essential component of creating a culture of creativity and innovation in the workplace. In this chapter, we'll explore strategies for encouraging idea generation and experimentation to foster a culture of creativity and innovation.
 

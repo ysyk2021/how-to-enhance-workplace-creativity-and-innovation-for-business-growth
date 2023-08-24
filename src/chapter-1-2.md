@@ -1,5 +1,3 @@
-Overview of Workplace Creativity and Innovation
-=============================================================
 
 Workplace creativity and innovation are essential for driving business growth and staying competitive in today's fast-paced business world. In this book, we'll provide an overview of workplace creativity and innovation, their importance, and strategies for enhancing them in the workplace.
 

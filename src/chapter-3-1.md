@@ -1,5 +1,3 @@
-Understanding the Impact of Workplace Creativity and Innovation on Business Success
-=====================================================================================================================================================================
 
 Workplace creativity and innovation play a crucial role in driving business success. In this chapter, we'll explore the impact of workplace creativity and innovation on business success.
 

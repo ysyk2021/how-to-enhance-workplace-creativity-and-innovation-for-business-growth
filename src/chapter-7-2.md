@@ -1,5 +1,3 @@
-Overcoming Barriers to Effective Implementation
-==========================================================================
 
 Effective implementation of workplace creativity and innovation strategies is critical for achieving business growth. In this chapter, we'll explore strategies for overcoming barriers to effective implementation.
 

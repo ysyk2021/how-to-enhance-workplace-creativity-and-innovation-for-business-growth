@@ -1,5 +1,3 @@
-Chapter 4: Building Diverse Teams
-=================================
 
 Building diverse teams is essential for fostering workplace creativity and innovation. In this chapter, we'll explore the advantages of a diverse workforce, strategies for building teams with diverse backgrounds and perspectives, and how to manage diversity effectively.
 

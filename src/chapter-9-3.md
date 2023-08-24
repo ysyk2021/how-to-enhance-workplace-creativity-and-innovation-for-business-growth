@@ -1,5 +1,3 @@
-Looking Ahead to the Future of a Workforce with Enhanced Creativity and Innovation
-================================================================================================================
 
 As the business landscape continues to evolve, so too does the importance of workplace creativity and innovation. In this chapter, we'll explore the future of a workforce with enhanced creativity and innovation.
 

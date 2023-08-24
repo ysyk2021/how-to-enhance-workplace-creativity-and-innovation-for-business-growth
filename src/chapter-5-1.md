@@ -1,5 +1,3 @@
-Understanding the Advantages of a Diverse Workforce
-======================================================================================
 
 Building diverse teams is essential for fostering workplace creativity and innovation. In this chapter, we'll explore the advantages of a diverse workforce and strategies for building diverse teams.
 

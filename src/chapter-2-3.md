@@ -1,5 +1,3 @@
-Examples of Successful Workplace Creativity and Innovation in Practice
-===============================================================================================================================
 
 Workplace creativity and innovation are essential for driving business growth and staying competitive in today's fast-paced business world. In this chapter, we'll explore examples of successful workplace creativity and innovation in practice.
 

@@ -1,5 +1,3 @@
-Measuring the Effectiveness of Workplace Creativity and Innovation Strategies
-========================================================================================================
 
 Measuring the effectiveness of workplace creativity and innovation strategies is essential for understanding the impact of these initiatives on business growth. In this chapter, we'll explore strategies for measuring the effectiveness of workplace creativity and innovation strategies.
 

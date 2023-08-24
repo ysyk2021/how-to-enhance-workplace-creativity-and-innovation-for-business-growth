@@ -1,5 +1,3 @@
-Addressing Challenges and Setbacks
-=================================================================
 
 Leadership support is essential for fostering workplace creativity and innovation. In this chapter, we'll explore strategies for addressing challenges and setbacks when implementing workplace creativity and innovation strategies.
 

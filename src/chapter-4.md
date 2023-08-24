@@ -1,4 +1,3 @@
-# Chapter 3: Creating a Culture of Creativity and Innovation
 
 Innovation and creativity are essential for business growth and success. However, to foster innovation, companies must create a culture that encourages experimentation, risk-taking, and idea generation. In this chapter, we will discuss how to create a culture of creativity and innovation in the workplace.
 

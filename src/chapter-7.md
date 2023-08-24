@@ -1,5 +1,3 @@
-Chapter 6: Implementation
-=========================
 
 Effective implementation of workplace creativity and innovation strategies is essential for driving business growth. In this chapter, we'll explore strategies for implementing workplace creativity and innovation for business growth, overcoming barriers to effective implementation, and measuring the effectiveness of these strategies.
 

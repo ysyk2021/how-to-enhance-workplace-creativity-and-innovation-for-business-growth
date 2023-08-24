@@ -1,4 +1,3 @@
-# Chapter 1: Defining Workplace Creativity and Innovation
 
 Workplace creativity and innovation are terms that are often used interchangeably, but they have distinct meanings. Creativity refers to the ability to generate novel and useful ideas, while innovation involves taking those ideas and turning them into tangible outcomes or solutions. In this chapter, we will define workplace creativity and innovation and explore their benefits and examples of successful implementation.
 

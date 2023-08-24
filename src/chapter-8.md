@@ -1,5 +1,3 @@
-Chapter 7: Leadership Support
-=============================
 
 Leadership plays a crucial role in fostering workplace creativity and innovation. In this chapter, we'll explore the importance of leadership support and provide strategies for leaders to promote a culture of innovation in the workplace.
 

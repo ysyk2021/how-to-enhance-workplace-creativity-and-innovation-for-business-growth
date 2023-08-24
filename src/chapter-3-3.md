@@ -1,5 +1,3 @@
-The Risks to Organizational Competitiveness and Relevance
-===========================================================================================================================================
 
 Workplace creativity and innovation are critical components of business success. In this chapter, we'll explore the impact of workplace creativity and innovation on organizational competitiveness and relevance.
 

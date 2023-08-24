@@ -1,5 +1,3 @@
-The Role of Leadership in Supporting Workplace Creativity and Innovation
-=======================================================================================================
 
 Leadership support is essential for fostering workplace creativity and innovation. In this chapter, we'll explore the role of leadership in supporting these concepts.
 

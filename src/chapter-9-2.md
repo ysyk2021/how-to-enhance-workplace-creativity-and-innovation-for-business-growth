@@ -1,5 +1,3 @@
-Addressing New Challenges in Promoting Creativity and Innovation
-==============================================================================================
 
 As workplaces continue to evolve, new challenges arise in promoting creativity and innovation. In this chapter, we'll explore some of these challenges and strategies for addressing them.
 

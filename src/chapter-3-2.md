@@ -1,5 +1,3 @@
-The Costs of Ignoring Workplace Creativity and Innovation
-===========================================================================================================================================
 
 Ignoring workplace creativity and innovation can have significant costs for organizations. In this chapter, we'll explore the negative impact of not prioritizing workplace creativity and innovation.
 

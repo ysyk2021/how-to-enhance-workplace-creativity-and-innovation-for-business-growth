@@ -1,5 +1,3 @@
-Managing Stress
-==========================================================
 
 Managing stress is an essential component of prioritizing employee wellness in the workplace. In this chapter, we'll explore strategies for managing stress among employees.
 

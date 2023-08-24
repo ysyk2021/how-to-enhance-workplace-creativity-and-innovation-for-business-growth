@@ -1,5 +1,3 @@
-The Benefits of Workplace Creativity and Innovation
-============================================================================================================
 
 Workplace creativity and innovation are essential for driving business growth and staying competitive in today's fast-paced business world. In this chapter, we'll define workplace creativity and innovation and discuss the benefits they bring to organizations.
 
