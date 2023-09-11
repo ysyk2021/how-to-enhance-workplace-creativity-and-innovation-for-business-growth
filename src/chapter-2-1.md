@@ -1,5 +1,4 @@
-Chapter 1: What is Workplace Creativity and Innovation?
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the definitions and importance of workplace creativity and innovation. In today's rapidly changing business landscape, organizations need to continuously adapt and innovate to stay competitive and drive growth. Let's delve into what workplace creativity and innovation mean and why they matter.
 

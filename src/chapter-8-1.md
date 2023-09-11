@@ -1,5 +1,4 @@
-Chapter 6: The Role of Leadership in Supporting Workplace Creativity and Innovation
-===================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective leadership plays a crucial role in fostering workplace creativity and driving innovation. In this chapter, we will explore the key responsibilities and strategies that leaders can employ to support and nurture creativity and innovation within their organizations.
 

@@ -1,5 +1,4 @@
-Chapter 7: Promoting Physical and Mental Health
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of promoting physical and mental health in the workplace to enhance creativity and innovation. A healthy workforce is essential for business growth, as it leads to increased productivity, reduced absenteeism, and improved overall well-being. Let's delve into strategies and practices that can help organizations promote physical and mental health among their employees.
 

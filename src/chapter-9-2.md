@@ -1,5 +1,4 @@
-Chapter 7: Addressing New Challenges in Promoting Creativity and Innovation
-===========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the new challenges organizations face when promoting creativity and innovation in the workplace. As the business landscape evolves, organizations must adapt their strategies to effectively address these challenges and foster a culture of creativity and innovation. Let's dive into the key challenges and how to address them.
 

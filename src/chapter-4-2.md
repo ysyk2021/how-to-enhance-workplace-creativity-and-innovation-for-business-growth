@@ -1,5 +1,4 @@
-Chapter 8: Encouraging Idea Generation and Experimentation
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for encouraging idea generation and experimentation in the workplace to enhance creativity and innovation. Creating a culture that values and supports the generation of new ideas, as well as the exploration and experimentation of those ideas, is crucial for driving business growth and success. Let's delve into practical approaches that can help organizations foster a culture of idea generation and experimentation.
 

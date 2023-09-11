@@ -1,5 +1,4 @@
-Chapter 3: The Benefits of Workplace Creativity and Innovation
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the numerous benefits that come from fostering workplace creativity and innovation. By understanding the advantages that these practices bring, organizations can better appreciate their importance in driving business growth. Let's dive into the benefits of workplace creativity and innovation.
 

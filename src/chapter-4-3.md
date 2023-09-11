@@ -1,5 +1,4 @@
-Chapter 8: Promoting Risk-Taking and Failure as Opportunities for Learning
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of promoting risk-taking and failure as opportunities for learning in the workplace to enhance creativity and innovation. Encouraging employees to take calculated risks and embrace failure as part of the learning process fosters a culture of innovation, resilience, and continuous improvement. Let's delve into strategies and practices that can help organizations promote risk-taking and failure as valuable learning experiences.
 

@@ -1,5 +1,4 @@
-Chapter 6: Balancing Work and Personal Life
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of achieving a healthy work-life balance for fostering workplace creativity and innovation. Striking a balance between work responsibilities and personal life is essential for employee well-being, productivity, and ultimately, business growth. Let's delve into strategies and practices that can help individuals maintain a healthy work-life balance.
 

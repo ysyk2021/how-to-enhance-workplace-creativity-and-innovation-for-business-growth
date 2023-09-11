@@ -1,5 +1,4 @@
-Chapter 8: Looking Ahead to the Future of a Workforce with Enhanced Creativity and Innovation
-=============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this final chapter, we will explore the future of a workforce that embraces enhanced creativity and innovation. As organizations continue to evolve in a rapidly changing world, it is essential to anticipate and adapt to emerging trends and technologies that will shape the future of work. Let's explore what lies ahead for a workforce with enhanced creativity and innovation.
 

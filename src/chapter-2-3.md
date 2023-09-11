@@ -1,5 +1,4 @@
-Chapter 2: Examples of Successful Workplace Creativity and Innovation in Practice
-=================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore real-life examples of organizations that have successfully implemented workplace creativity and innovation strategies to drive business growth. By examining these examples, we can gain insights into the practical application of creative and innovative practices in different industries. Let's dive into some remarkable success stories.
 

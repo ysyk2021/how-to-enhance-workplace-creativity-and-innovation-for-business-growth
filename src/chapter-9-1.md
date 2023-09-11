@@ -1,5 +1,4 @@
-Chapter 6: Innovations in Fostering Workplace Creativity and Innovation
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore innovative approaches to fostering workplace creativity and innovation. By staying up-to-date on the latest trends and methodologies, organizations can develop effective strategies for promoting a culture of creativity and innovation. Let's delve into the innovations in fostering workplace creativity and innovation.
 

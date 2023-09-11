@@ -1,5 +1,4 @@
-Chapter 5: Understanding the Impact of Workplace Creativity and Innovation on Business Success
-==============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significant impact that workplace creativity and innovation have on driving business success. By understanding how these elements influence an organization's performance, leaders can prioritize and leverage them to achieve sustainable growth. Let's delve into the impact of workplace creativity and innovation on business success.
 

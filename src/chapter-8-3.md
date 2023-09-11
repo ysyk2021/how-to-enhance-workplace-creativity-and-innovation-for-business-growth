@@ -1,5 +1,4 @@
-Chapter 7: Addressing Challenges and Setbacks
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of workplace creativity and innovation, challenges and setbacks are inevitable. However, it is crucial to approach these obstacles as opportunities for growth and learning. In this chapter, we will explore strategies for addressing challenges and setbacks while maintaining a focus on enhancing workplace creativity and promoting business growth.
 

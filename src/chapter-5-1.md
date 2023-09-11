@@ -1,5 +1,4 @@
-Chapter 4: Understanding the Advantages of a Diverse Workforce
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the advantages that come from cultivating a diverse workforce in the context of enhancing workplace creativity and innovation. By understanding the benefits of diversity, organizations can harness its power to drive business growth. Let's delve into the advantages of a diverse workforce.
 

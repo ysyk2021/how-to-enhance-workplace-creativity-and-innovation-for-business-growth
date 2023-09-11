@@ -1,5 +1,4 @@
-Chapter 8: Fostering a Culture of Creativity and Innovation
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how to foster a culture of creativity and innovation in the workplace. Creating an environment that encourages and supports creative thinking and innovation is essential for driving business growth. By implementing strategies that nurture a culture of creativity and innovation, organizations can unlock their employees' full potential and generate innovative solutions. Let's dive into various approaches to fostering a culture of creativity and innovation.
 

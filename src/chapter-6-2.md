@@ -1,5 +1,4 @@
-Chapter 7: Managing Stress
-==========================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for managing stress in the workplace. High levels of stress can hinder creativity and innovation, impacting business growth. By implementing effective stress management techniques, organizations can create a supportive work environment that fosters creativity and encourages innovation. Let's delve into various approaches to managing stress.
 
